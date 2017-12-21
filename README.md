@@ -1,0 +1,1 @@
+# sc-2017-predefinisani
